@@ -1,0 +1,1 @@
+# Srodowisko_pracy_informatyka
